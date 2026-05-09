@@ -1,4 +1,4 @@
-
+Enhance Descript for macOS with advanced Descript for macOS Transition | collaboration-tools + time-remapping, the #1 transition. Includes collaboration-tools and time-remapping
 
 
 
